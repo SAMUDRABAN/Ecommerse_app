@@ -34,3 +34,6 @@ Greater transparency and efficiency in financial transactions.
 
 
 ![WhatsApp Image 2023-05-19 at 14 10 42](https://github.com/SAMUDRABAN/Ecommerse_app/assets/97033991/c53a6236-4779-4aaa-87e6-bff57990950e)
+![image](https://github.com/SAMUDRABAN/Ecommerse_app/assets/97033991/4b3efc79-ab79-4727-b0a8-7f6288aff3e2)
+![image](https://github.com/SAMUDRABAN/Ecommerse_app/assets/97033991/135964cb-8e28-4408-80c2-ad638a0b5d02)
+
